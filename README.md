@@ -22,7 +22,7 @@ Pour une douzaine de gros cookies
 
 ## Instructions
 
-1. Préchauffez le four à **180°C**.
+1. Préchauffez le four à **160°C**.
 
 1. Dans un saladier, tamisez la **farine**, le **bicarbonate**, la **levure** et le **sel**.
 
@@ -42,7 +42,7 @@ Pour une douzaine de gros cookies
 
    > Ne surtout pas cuire les cookies sur une plaque de four qui empêcherait de les cuire convenablement en dessous.
 
-1. Placez la grille à mi-hauteur dans le four et enfournez pendant **14 minutes**, jusqu'à ce que les cookies aient une couleur bien dorée.
+1. Placez la grille à mi-hauteur dans le four et enfournez pendant **16 minutes**, jusqu'à ce que les cookies aient une couleur bien dorée.
 
    > Au sortir du four, les cookies donneront l'impression de ne pas "se tenir", d'être friables au toucher, ce qui est tout à fait normal.
 
