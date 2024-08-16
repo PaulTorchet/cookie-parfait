@@ -5,7 +5,7 @@ Pour une douzaine de gros cookies
 ## Ingrédients
 
 - 140g de beurre à température ambiante (ou 1min au micro-ondes)
-- 180g de sucre
+- 150g de sucre
 - 2 sachets de sucre vanillé
 - 1 œuf à température ambiante
 - 240g de farine fluide
