@@ -1,6 +1,6 @@
 # 🍪 Le cookie parfait 🍪
 
-Pour une douzaine de gros cookies
+Pour une vingtaine de gros cookies.
 
 ## Ingrédients
 
