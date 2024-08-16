@@ -20,6 +20,18 @@ Pour une vingtaine de gros cookies.
 
 > Le mieux est de multiplier les doses par deux
 
+## Ustensiles
+
+- 2 saladiers
+- 1 balance
+- 1 four
+- 1 cuillère à café
+- 1 cuillère à glace (ou à soupe)
+- 1 fouet
+- 1 couteau
+- 1 planche à découper
+- Papier cuisson, aluminium, ou tapis de cuisson
+
 ## Instructions
 
 1. Préchauffez le four à **160°C**.
