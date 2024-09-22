@@ -1,28 +1,40 @@
 # 🍪 Le cookie parfait 🍪
 
-Pour une douzaine de gros cookies
+Pour une vingtaine de gros cookies.
 
 ## Ingrédients
 
 - 140g de beurre à température ambiante (ou 1min au micro-ondes)
-- 180g de sucre
+- 150g de sucre
 - 2 sachets de sucre vanillé
 - 1 œuf à température ambiante
 - 240g de farine fluide
 - 1/2 cc de bicarbonate de soude
 - 3/4 cc de levure chimique
-- 1/2 cc de sel
+- 1/3 cc de sel
 - Garniture
   - 1/2 tablette de chocolat noir (Nestlé dessert)
   - 1/2 tablette de chocolat caramel (Nestlé dessert)
   - 1/2 tablette de chocolat blanc (Nestlé dessert)
-  - 100g à 125g de noisettes entières
+  - 100g de noisettes entières
 
 > Le mieux est de multiplier les doses par deux
 
+## Ustensiles
+
+- 2 saladiers
+- 1 balance
+- 1 four
+- 1 cuillère à café
+- 1 cuillère à glace (ou à soupe)
+- 1 fouet
+- 1 couteau
+- 1 planche à découper
+- Papier cuisson, aluminium, ou tapis de cuisson
+
 ## Instructions
 
-1. Préchauffez le four à **180°C**.
+1. Préchauffez le four à **160°C**.
 
 1. Dans un saladier, tamisez la **farine**, le **bicarbonate**, la **levure** et le **sel**.
 
@@ -42,7 +54,7 @@ Pour une douzaine de gros cookies
 
    > Ne surtout pas cuire les cookies sur une plaque de four qui empêcherait de les cuire convenablement en dessous.
 
-1. Placez la grille à mi-hauteur dans le four et enfournez pendant **14 minutes**, jusqu'à ce que les cookies aient une couleur bien dorée.
+1. Placez la grille à mi-hauteur dans le four et enfournez pendant **16 minutes**, jusqu'à ce que les cookies aient une couleur bien dorée.
 
    > Au sortir du four, les cookies donneront l'impression de ne pas "se tenir", d'être friables au toucher, ce qui est tout à fait normal.
 
