@@ -13,9 +13,7 @@ Pour une vingtaine de gros cookies.
 - 2 sachets de sucre vanillé
 - 1 œuf à température ambiante
 - Garniture
-  - 1/2 tablette de chocolat noir (Nestlé dessert)
-  - 1/2 tablette de chocolat caramel (Nestlé dessert)
-  - 1/2 tablette de chocolat blanc (Nestlé dessert)
+  - 1,5 tablette de chocolat (noir, caramel, blanc, ... en Nestlé dessert)
   - 100g de noisettes entières
 
 > Le mieux est de multiplier les doses par deux
