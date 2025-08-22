@@ -32,7 +32,7 @@ Pour une vingtaine de gros cookies.
 
 ## Instructions
 
-1. Préchauffez le four à **160°C**.
+1. Préchauffez le four à **160°C** (pour un four étudiant de petite taille).
 
 1. Dans un saladier, tamisez la **farine**, le **bicarbonate**, la **levure** et le **sel**.
 
