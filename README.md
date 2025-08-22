@@ -34,11 +34,11 @@ Pour une vingtaine de gros cookies.
 
 1. Préchauffez le four à **160°C** (pour un four étudiant de petite taille).
 
-1. Dans un saladier, tamisez la **farine**, le **bicarbonate**, la **levure** et le **sel**.
+1. Dans un saladier, tamisez la **farine** (240g), le **bicarbonate** (1/2 cc), la **levure** (3/4 cc) et le **sel** (1/3 cc).
 
    > Attention à ne jamais mettre **la levure à côté du sel** sous peine de lui ôter tout pouvoir levant !
 
-1. Dans un second saladier, fouettez le **beurre** et le **sucre** jusqu'à obtenir une consistance lisse et mousseuse.
+1. Dans un second saladier, fouettez le **beurre** (140g) et le **sucre** (150g + 2 sachets vanillés) jusqu'à obtenir une consistance lisse et mousseuse.
 
 1. Ajoutez l'**œuf** et fouettez de nouveau.
 
