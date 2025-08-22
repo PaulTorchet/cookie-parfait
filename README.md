@@ -44,7 +44,9 @@ Pour une vingtaine de gros cookies.
 
 1. Ajoutez peu à peu les **ingrédients secs**, remuez juste assez pour tout bien mélanger (le secret étant de **ne pas trop travailler l'appareil** à cookies).
 
-1. Ajoutez la **garniture** (coupez les tablettes de chocolat en morceaux), toujours **sans trop malaxer la pâte**.
+1. Coupez les **tablettes de chocolat** en morceaux (plus petits que les carrés) et **mélangez avec les noisettes**.
+
+1. Ajoutez la **garniture** à l'appareil, toujours **sans trop malaxer la pâte**.
 
 1. Prélevez à l'aide d'une cuillère à glace (pour que chaque cookie ait le même calibre) des morceaux de pâte, formez des **petites boules de taille uniforme** (environ la taille d'une balle de ping-pong). Il faut que les boules aient une taille quasi équivalente pour pouvoir cuire toutes uniformément.
 
