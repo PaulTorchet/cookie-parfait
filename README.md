@@ -4,14 +4,14 @@ Pour une vingtaine de gros cookies.
 
 ## Ingrédients
 
-- 140g de beurre à température ambiante (ou 1min au micro-ondes)
-- 150g de sucre
-- 2 sachets de sucre vanillé
-- 1 œuf à température ambiante
 - 240g de farine fluide
 - 1/2 cc de bicarbonate de soude
 - 3/4 cc de levure chimique
 - 1/3 cc de sel
+- 140g de beurre à température ambiante (ou 1min au micro-ondes)
+- 150g de sucre
+- 2 sachets de sucre vanillé
+- 1 œuf à température ambiante
 - Garniture
   - 1/2 tablette de chocolat noir (Nestlé dessert)
   - 1/2 tablette de chocolat caramel (Nestlé dessert)
