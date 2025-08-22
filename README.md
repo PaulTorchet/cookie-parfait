@@ -42,7 +42,7 @@ Pour une vingtaine de gros cookies.
 
 1. Ajoutez l'**œuf** et fouettez de nouveau.
 
-1. Ajoutez peu à peu les **ingrédients secs**, remuez juste assez pour tout bien mélanger (le secret étant de **ne pas trop travailler l'appareil** à cookies).
+1. Ajoutez peu à peu les **ingrédients secs** (farine, ...), remuez juste assez pour tout bien mélanger (le secret étant de **ne pas trop travailler l'appareil** à cookies).
 
 1. Coupez les **tablettes de chocolat** en morceaux (plus petits que les carrés) et **mélangez avec les noisettes**.
 
